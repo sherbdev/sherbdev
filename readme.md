@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Seth (@straymatch)
+- 👀 I graduated with a Communications degree in August of 2021.
+- 🌱 I’m currently learning how to build websites for personal and commercial use.
+- 💞️ I’m looking to collaborate on web and graphic design projects!
+- 📫 How to reach me: straymatch@gmail.com
